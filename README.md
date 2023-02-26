@@ -1,4 +1,4 @@
-Rendyzzx.github.com
+Rendyzzx.github.io
 
 
 
